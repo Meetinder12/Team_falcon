@@ -44,3 +44,8 @@ I was born and raised in ***India,*** to be more precise from the southern state
 - Exercising
 - Travelling
 - Video editing
+**Fav Movies:**
+1. Batman vs Superman
+2. The Batman
+3. Scarface
+[My favourite website](https://www.nike.com)
