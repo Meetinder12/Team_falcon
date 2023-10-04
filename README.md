@@ -24,3 +24,21 @@ People will be never alone who have healthy thinking
  - Driving car
  - Hiting Gym
 
+## Shon
+### Hobbies
+- Drumming
+- Going to gym
+### Background 
+I was born and raised in ***India,*** to be more precise from the southern state called **Kerala.** My hometown is **Kottayam.** I am from a nuclear family consist of my father, mother, elder sister and me. I completed my high school in *SMSNHSS Vaikom, Kottayam.*
+### Skills
+- Teamwork
+- Active listening
+- Adaptability
+- Creativity
+### Likes
+- Sports
+- Watching movies
+- Adventure
+- Exercising
+- Travelling
+- Video editing
